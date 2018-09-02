@@ -1,1 +1,1 @@
-# Discord dark blue theme
+# Discord gay theme theme
